@@ -4,3 +4,7 @@ The owner of this service reserves the right to terminate service at any time, w
 
 If you can manage to do damage to yourself or your assets with this application, I'm astonished.
 The owner can not be held liable for any damages arising from misuse of the application by users and or malicious actors.
+
+
+Privacy Policy:
+https://www.termsfeed.com/live/110c90fb-467e-4c4c-a0a0-ade554d01a85
